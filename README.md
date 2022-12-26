@@ -1,5 +1,4 @@
-### Mustafa-AY
-- I am current
+
 ### Hi there 👋, I am Mustafa
 ![](https://arturssmirnovs.github.io/github-profile-readme-generator/images/banner.png)
 
