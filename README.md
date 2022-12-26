@@ -1,4 +1,4 @@
-![](https://arturssmirnovs.github.io/github-profile-readme-generator/images/banner.png)
+- ![](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQj_yQyqunHtZrxBhENqtB3BCFGbi0wtky92OZPcwra9CTHXtwP9cuTJvo_JlOkxuVpMuQ&usqp=CAU)
 - 📫 My LinkedIn Page: https://www.linkedin.com/in/MustafaaAY  
 ### Hi there 👋, I am Mustafa
 I aim to blend theoretical education with the experiences I will gain in business life and to have experience. I have an investigative identity. I do not fit my range of information into a shallow space and approach problems from different perspectives with the ability to think analytically. I am always open to opportunities, possibilities, advice, suggestions that I will develop myself.The areas I am interested in are to improve myself by using corporate or ordinary interface applications of companies on the user side.
