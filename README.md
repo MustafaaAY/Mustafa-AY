@@ -6,7 +6,7 @@ I aim to blend theoretical education with the experiences I will gain in busines
 Skills: REACT / PYTHON / C / C++ / C# / JAVA / JS / HTML / CSS
 
 - 🔭 I’m currently working on this page. 
-- 🌱 I’m currently learning SAP ERP 
+- 🌱 I’m currently learning everything
 - 💬 Ask me about mustafaay.ma@hotmail.com 
 - 📫 How to reach me: mustafaay.ma@hotmail.com 
 
